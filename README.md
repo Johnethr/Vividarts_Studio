@@ -1,1 +1,0 @@
-# Vividarts_Studio
